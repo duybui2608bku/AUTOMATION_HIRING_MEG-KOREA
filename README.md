@@ -1,1 +1,0 @@
-# ADS-PAUSED-CAMP
